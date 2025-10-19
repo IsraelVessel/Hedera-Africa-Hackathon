@@ -1,3 +1,4 @@
+https://eaft.onhercules.app/
 Empower African Farmers with Technology
 Connect directly with buyers, get AI-powered insights, and earn fair prices for your harvests. All on the Hedera blockchain.
 
